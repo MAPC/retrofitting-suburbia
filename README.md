@@ -1,4 +1,4 @@
-# Retrofitting Suburbia
+# Rethinking the Suburban Strip
 
 *Or, Rethinking the Suburban Strip*
 
